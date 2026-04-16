@@ -1,0 +1,3 @@
+Told Dad all about my calling. In return, he told me all about some artwork he'd been doing. He showed me a three faced painting and half a bust pressed against a mirror. He mentioned Janus.
+
+There was a lucid period of the dream, where I delighted in touching everything and feasting my eyes on my surroundings. I sang and moved my body to keep myself immersed in the dream world. The sensations we're remarkably real! I was in some kind of vast city, similar to Edinburgh in some ways.

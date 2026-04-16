@@ -1,0 +1,1 @@
+Saw Nana Noreen, praised God and held her hand.

@@ -1,0 +1,1 @@
+I was in a living game, part of a team. There were random events, including deaths, rigged up like an escape room or game show. In truth, the events were totally random, but people imagined patterns and set up elaborate games. I was in a church with my team.
