@@ -1,0 +1,10 @@
+{
+  "permissions": {
+    "allow": [
+      "Bash(gh pr create --title 'Integrate Child Shadow Integration into Jungian archetype analysis' --body ':*)",
+      "Bash(where gh:*)",
+      "Bash(winget list:*)",
+      "Bash(choco --version)"
+    ]
+  }
+}
