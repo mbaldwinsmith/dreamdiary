@@ -59,6 +59,16 @@ This is a logocentrism that is neither naively linguistic nor reductively magica
 
 Eating in the corpus is always moral: what is consumed and how it is consumed reflects the state of the soul. Healthy consumption is slow, sensory, mutual; pathological consumption is frantic, addictive, solitary, or coerced.
 
+### The Body as Integration Bridge — The Somatic Register
+
+**Child Shadow Integration** introduces a symbolic register not fully present in earlier dreams: the body as the site where interior and exterior meet, and where genuine integration — as opposed to merely symbolic integration — is confirmed.
+
+The final segment's key gesture is not verbal but somatic: the dreamer sits beside the Shadow, wraps his arms around himself, and simply holds. The "I love you" spoken aloud is secondary to the physical act that precedes it. The body enacts what the mind has been trying to say. When the integration succeeds and the dreamer wakes, he discovers himself holding this same gesture in waking life — arms wrapped around his own body, physically hugging himself, without having consciously initiated it.
+
+This somatic bridge — the dream-body and the waking body acting in concert — marks a threshold the earlier integration dreams do not cross. *Evil Twin Integrated* resolves through detachment and stillness; the resolution is interior. *Child Shadow Integration* resolves through the body, and the resolution crosses the threshold into waking physical life. Jung described a level he called the **psychoid** — where psyche and matter are not clearly distinguishable — and this appears to be an instance of it: the psychological event was simultaneously a bodily event, even across the boundary of sleep.
+
+The stinging tears that followed (while writing the dream, while reading the analysis, while speaking aloud to the wounded part) belong to the same register: not soft sadness but *piercing* grief, the sensation of a defence giving way in the body, not only in the mind. The somatic register in this corpus had previously been the location of Shadow material (the boar-body, the mouths, the barbed phallus). Here it becomes the location of healing.
+
 ### Insects and Machine Life — Dehumanisation
 
 A consistent minor register across several dreams is insectoid or machine-like life as a symbol of the dehumanising principle.
@@ -94,6 +104,16 @@ The Shadow begins to be glimpsed as interior: the boar-transformation in *Breaki
 The later dreams show integration becoming explicit. *Evil Twin Integrated* dramatises Shadow-work in its most direct form and names the mechanism plainly. *Phoenix Reborn* shows the Anima fully inhabited. *River Of Grief* shows the ego inhabiting a Christ-type, experiencing the Self from the inside rather than encountering it from outside.
 
 The vocation theme resolves toward distribution: many Chosen Ones, collective awakening, governance as Viceroy rather than sovereign. The heroic ego-strength that wanted to tear products off supermarket shelves has been replaced by patient structural alignment.
+
+### Phase Three Deepened: *Child Shadow Integration*
+
+**Child Shadow Integration** advances Phase Three beyond anything in the prior corpus. It does not merely dramatise integration; it traces the mechanism of integration in four sequential movements, each correcting the last.
+
+*Monster Baby* establishes the problem: the Child-Shadow escalates through tantrum, monster, and dragon because there is nowhere for it to roost — no legitimate home. *Storming the Castle* shows the Hero's approach failing: the combat reflex, however successful on its own terms, is outflanked by the Trickster. *Altercation with Dad* shows the Father complex's power to collapse the adult ego back to childhood, and the ego responding with love rather than matching aggression — a mature move that nonetheless does not prevent regression. And *Confronting the Twisting Shadow* shows the complete mechanism: not detachment (as in *Evil Twin Integrated*), not combat, not willpower, but *loving presence with the wound*.
+
+The four movements together answer the dragon's complaint. The dragon had nowhere to roost because the ego had escaped the darkness and sealed the door behind it. The wounded Child had been left in the dark since adolescence. Integration required the ego to go back, sit down in the dark, and say: *I left you here. I'm sorry. I love you.*
+
+What makes this dream a Phase Three marker rather than merely another integration scene is the psychoid dimension: the resolution crossed the threshold of sleep. The dreamer woke holding himself. The integration was not merely intrapsychic; it became somatic. And the subsequent waking encounter — the spontaneous spoken apology to the wounded part, the stinging tears — suggests the integration continued after waking, in the register of ordinary consciousness. The dream opened a door; the waking dreamer walked through it.
 
 ### The Persistent Corrective Impulse
 

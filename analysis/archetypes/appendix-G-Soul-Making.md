@@ -54,6 +54,24 @@ The dreamer's encounters with Nan and Grandad Paddy are treated with extraordina
 
 Hillman would also note the theological colour of these encounters. *Purgatory* is not a Jungian category; it is a Catholic one. But Hillman's archetypal psychology deliberately drew on pre-Christian mythology (Hades, Persephone, Psyche) to recover the Underworld imagination that Christianity had tended to collapse into heaven-and-hell binary. The purgatorial grey zone — neither paradise nor damnation, not resolved — is precisely the Underworld imagination the dreamer's cultural tradition makes available to him.
 
+### The Shadow That Speaks — *Child Shadow Integration*
+
+**Child Shadow Integration: Confronting the Twisting Shadow** is the corpus's richest site of tension between the Jungian developmental reading and Hillman's soul-making sensibility.
+
+The Jungian reading is compelling and internally complete: the dreamer becomes lucid, moves toward the Shadow with compassion rather than combat, sits with it, says "I love you," and the Shadow dissolves. Integration achieved. The mechanism is named, the resolution is felt, the dreamer wakes transformed — physically holding himself, continuing the work in waking life through spontaneous apology and stinging tears. This is individuation functioning as the model predicts.
+
+Hillman would not dispute any of that. He would ask a different question: *what about the shadow's cry itself?*
+
+> *"Nobody likes me."*
+
+The Jungian reading hears this as the wounded inner child's core belief — depression's voice, the thing the ego left behind in adolescence. This is certainly true. But Hillman would resist the move that happens immediately afterward: the shadow "turns into a watery blob and slowly dissipates." The wound speaks, is met with love, and dissolves. It is resolved.
+
+Hillman's pathologising principle would slow down here and ask: *what is the soul-work that was being done by this specific complaint, in this specific voice, before it was dissolved?* "Nobody likes me" is not merely a symptom to be cured. It is a perspective — the perspective of the rejected, the unloved, the one who has learned from long experience in the dark that connection does not reach it. What does it know that the integrated ego will now not know? What is lost when the shadow that wept is healed?
+
+This is not an argument against the integration. It is an argument for staying, briefly, with what the shadow was — not just with what the shadow needed. The dragon in *Monster Baby* had nowhere to roost. Now it has been given a home. But the dragon also knew something about homelessness that the settled ego will not. The soul-making question is whether that knowledge survives the integration, or is dissolved with the watery blob.
+
+The dreamer's waking tears — "stinging," piercing, defensive — suggest something of that knowledge *does* survive: the ache of recognising how long that part was left alone is itself a form of ongoing acquaintance with the shadow's experience, even after the shadow has dissolved. The grief is the shadow's posthumous teaching.
+
 ---
 
 ## The Polytheistic Psyche and This Corpus

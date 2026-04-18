@@ -35,6 +35,12 @@ The three-eyed Greek woman of **Prayers Of The Saints** represents the Anima at 
 
 The fleeting quality of the encounter (no name, no dialogue beyond the erotic) marks this as Helen rather than Sophia: she is seen and desired, not yet truly known.
 
+## Mary — The Witnessing Feminine
+
+A quieter but significant Mary-level Anima appears in **Child Shadow Integration: Altercation with Dad**. The dreamer wakes in a barn covered in babbling babies and finds "a pretty older woman" lying next to him, looking at him fondly. She says nothing. She does not correct or instruct. She simply *sees* him, with warmth and without demand, in a moment when the surrounding social field (the outraged crowd, the aggressive father) is about to reject him.
+
+This is the Anima as witness — the interior feminine presence that holds steady regard when the exterior world withdraws it. She is not passionate or idealised (not Eve or Helen) and not corrective (she offers no rebuke). She is simply *there*, looking fondly, providing the relational ground the dreamer needs before the storm of the Father complex arrives. When it does arrive — the father with clenched fists, the crowd's outrage, the regression to childhood — she is gone, replaced by panic. Her absence from the later scene is not accidental: the Father complex and the nourishing Anima cannot easily coexist in the same psychic space.
+
 ## Mary — The Corrective Feminine
 
 **Driving Away Demons** introduces the Anima at her Mary-level in the figure of Ginger. A redheaded woman (note: the red hair connects her to the Morning Dew figure, suggesting developmental continuity) who corrects the dreamer sharply for disrespect:
@@ -68,6 +74,7 @@ The Anima in this diary:
 | Eve | Red-haired woman | *Morning Dew* | Erotic, perfectly attuned, potentially illusory |
 | Eve (shadow) | Garden succubi | *Temptation In The Garden* | Seductive-to-demonic, demanding the seed of Adam |
 | Helen | Three-eyed Greek woman | *Prayers Of The Saints* | Beautiful, romantically charged, expanded perception |
+| Mary | Pretty older woman in barn | *Child Shadow Integration* | Witnessing, warmly present, non-demanding |
 | Mary | Ginger / bird-woman | *Driving Away Demons* | Corrective, mutually nourishing, spiritually formed |
 | Sophia | The dreamer as beautiful woman | *Phoenix Reborn* | Integrated, creative, life-restoring |
 
