@@ -32,6 +32,28 @@ This failure is so precisely mapped in the dream that it functions as a teaching
 
 ---
 
+## When the Warrior Wins the Wrong Battle — *Child Shadow Integration*
+
+**Storming the Castle** presents the Warrior's most instructive structural failure. The dreamer draws in energy, bellows at the castle, watches the forcefield flicker and the walls crumble — this is Warrior focused-force working exactly as intended. A knight descends to challenge him. He fights with a sword and wins. Every move is correct Warrior action: clear objective, focused energy, disciplined combat, victory.
+
+Then the castle tells him what the victory cost. The Jester was operating in the blind spot the combat created. The dreamer's Warrior attention — correctly consumed by the duel — left the social field entirely unguarded, and that is where the real damage was done.
+
+This extends the lesson of *Supermarket of Sin* into a more sophisticated register. In the supermarket, the Warrior's energy was misdirected at the symptoms rather than the system. Here, the energy was correctly directed at the named opponent — and that *correct* direction was itself the misdirection. The Warrior's strength (clarity of focus, commitment to the visible opponent) was turned against him by an enemy who understood that strength better than he did. The Jester won by knowing what the Warrior would do.
+
+The dreamer's semi-lucid attempt to will away the subsequent images of humiliation is also telling: this is the Warrior trying to use the only tool he has (focused, applied will) against a psychological event that will-force cannot touch. Shadow content does not yield to the Warrior's approach. The more the dreamer wills against the images, the more they confirm their own authority.
+
+## The Warrior Who Knows When to Stop — *Child Shadow Integration*
+
+**Confronting the Twisting Shadow** opens with a pure Warrior response: the dreamer becomes lucid, fills with rage, and storms after the shadow. This is not a failure. Rage at the rejected and abandoned part of the self — the part that was left in the dark — is the appropriate initiating energy. The Warrior's clarity and commitment are needed to cross the threshold and pursue what has been evaded.
+
+But then:
+
+> *"Suddenly filled with compassion."*
+
+The Warrior stops. Not because he was defeated, not because the shadow overpowered him, but because he *recognised* — in the shadow's writhing and convulsing, its visible pain under his gaze — that force was the wrong instrument for this specific encounter. The target was not an enemy requiring combat but a wound requiring presence.
+
+This is the Warrior at his most mature: not the absence of warrior energy, but the warrior energy that knows its own limits. Moore and Gillette describe the fully developed Warrior as one who can act decisively and then lay down the weapon when the action is complete. Here the weapon is laid down before it is used, because the warrior sees what the situation actually requires. The rage that drove him across the threshold is honoured; what it accomplished (getting him there) is sufficient. The rest belongs to a different archetype.
+
 ## The Sadist Shadow
 
 The Sadist is the Warrior's active shadow: destructive power serving the ego's pleasure or fear rather than a genuine cause. In this corpus it appears almost entirely in externalised, antagonist form — which may reflect good integration of the Warrior, or may reflect the Sadist's successful suppression into projection.
@@ -72,11 +94,14 @@ This is the Warrior mythology of sacred death — the one who dies in service of
 | Positive: Standing ground | Holds position against demonic figures | *Temptation In The Garden* |
 | Positive: Focused declaration | Calls on Jesus; figure flung back | *Driving Away Demons* |
 | Positive: Sacred defeat | Struck down as Christ-type; Death indebted | *River Of Grief* |
+| Positive: Initiating rage, then yielding | Storms after shadow, then sits with compassion | *Child Shadow Integration* |
 | Misdirected force | Frenzy tearing products off shelves | *Supermarket of Sin* |
+| Wrong battlefield | Wins the duel while the Jester operates in the blind spot | *Child Shadow Integration* |
+| Failed willpower | Semi-lucid, tries to will away shadow images; cannot | *Child Shadow Integration* |
 | Sadist (externalised) | Centaurs/demons overrunning the castle | *Author, Knight, Elder* |
 | Sadist (institutional) | Lab-coat attackers, corporate Dream Prison | *Breaking Out*, *Dream Prison* |
 | Sadist (shadow-eruption) | Boar-person with tusks and barbed penis | *Breaking Out* |
 | Coward (relational) | Stopping the declaration under family pressure | *Jesus Is Lord* |
 | Coward (withheld counsel) | Not telling refugees to call on Jesus | *Driving Away Demons* |
 
-The Warrior in this corpus is well-developed in its combat and endurance modes, but the Coward shadow surfaces consistently in the relational and social register. The dreamer can hold position against demons; he struggles to hold position against family disapproval. The gap between dreamscape courage and waking relational courage is the Warrior's unfinished work in this diary.
+The Warrior in this corpus is well-developed in its combat and endurance modes, but the Coward shadow surfaces consistently in the relational and social register. The dreamer can hold position against demons; he struggles to hold position against family disapproval. *Child Shadow Integration* adds a third dimension to this picture: the Warrior who wins the right fight on the wrong battlefield (*Storming the Castle*), and the Warrior who correctly initiates with rage and then consciously yields to a different archetype when he recognises the situation has changed (*Confronting the Twisting Shadow*). The latter is the Warrior at his most mature — force held, then relinquished, in the service of what is actually needed.

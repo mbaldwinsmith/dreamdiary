@@ -36,6 +36,20 @@ Here the corpus becomes genuinely interesting from a Puer-Senex perspective. The
 
 In Jungian terms: the Puer identifies with the archetype (I am the chosen one); the Senex grounds it (I am *a* chosen one among many, accountable to a larger order). The dreamer's dreams do not simply indulge the Puer's grandeur — they repeatedly construct scenarios in which that grandeur is redistributed, qualified, or interrupted. The choking in **Chosen Ones with the Mark** is the most visceral version: the Puer's voice is literally stopped before it can either fully claim or fully refuse the messianic role.
 
+### The Child Archetype as Puer's Shadow Face — *Child Shadow Integration*
+
+**Child Shadow Integration** offers the corpus's most searching examination of the Child archetype — and its relationship to the Puer is illuminating.
+
+**Monster Baby** opens with a baby who throws a violent tantrum and escalates into a monster and then a dragon. The dreamer's post-dream insight, voiced in **Altercation with Dad**, is that "young children are mini-tyrants" — a statement that outrages the social field around him. The connection to the Puer is precise: the Puer archetype in its shadow expression *is* a kind of divine infant — demanding, self-referential, erupting when its expectations are not met, convinced of its own exceptionality and affronted by any constraint. The baby-tyrant is the Puer stripped of his beauty and vision, showing only the entitlement that vision can generate when it is not grounded by the Senex.
+
+The dragon's complaint — *it has nowhere to roost* — is the Puer's existential condition rendered as image. The Puer's characteristic homelessness is not laziness or irresponsibility; it is the experience of a being whose register is flight and vision, who has never found a structure adequate to contain what he is. The dragon does not choose to be uncontained; it is uncontained because no one has built it a roost. This reframes the Puer's inflation not as arrogance but as the consequence of ungiven containment — a demand for what has always been withheld.
+
+Most significantly, **Confronting the Twisting Shadow** reveals the hidden wound beneath the Puer's grandiosity. The shadow — the Puer's most rejected face — speaks from the dark:
+
+> *"Nobody likes me."*
+
+This is the fear that the Puer's special calling is designed to answer, and to conceal. The visionary self-image (chosen one, herald, sole bearer of sacred memory) is constructed over a wound that has never healed: the terror that without the vision, without the calling, without the exceptional role, there is only a child nobody likes. The Puer's inflation is not simply ego-excess; it is a defence against the shadow's weeping. Integration of the Puer, in this light, requires not simply the Senex-corrective of grounding the vision, but the prior act of sitting with the wounded child beneath the vision and saying: *I love you even without the calling. You were worth loving before you were chosen for anything.*
+
 ---
 
 ## The Senex as Ground and Corrective
@@ -67,5 +81,6 @@ Von Franz identified this dynamic holding as the mark of a Puer in genuine indiv
 | Awakening | Conductor rousing souls | Must camouflage to avoid becoming figurehead |
 | Combat | Tearing products off shelves in a frenzy | Patient structural replacement (new manager's method) |
 | Vision | Post-apocalyptic scripture-rewriter | Distributed body of Christ, collective awakening |
+| Shadow face | Baby-tyrant, dragon with nowhere to roost | The wound beneath the vision: "nobody likes me" |
 
-The Puer Aeternus is not a pathology to be cured in this diary. It is the energy that generates the entire visionary project. The question the diary asks, repeatedly and without final resolution, is whether that energy can be held in service of something larger than itself — and the answer, across forty entries, is: not yet completely, but more and more.
+The Puer Aeternus is not a pathology to be cured in this diary. It is the energy that generates the entire visionary project. The question the diary asks, repeatedly and without final resolution, is whether that energy can be held in service of something larger than itself — and the answer, across forty entries, is: not yet completely, but more and more. *Child Shadow Integration* adds a layer beneath that question: before the Puer can be fully grounded, the wounded child beneath the Puer must be found and loved. The vision rests on a foundation that has never been properly tended. That tending is what the shadow's dissolution represents.

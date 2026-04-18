@@ -38,6 +38,22 @@ What is notable is that the Tyrant energy does not appear to be an interior temp
 
 ---
 
+## The Tyrant as Interior Figure — *Child Shadow Integration*
+
+All prior Tyrant appearances in the corpus are externalised: the Putin-figure, the corporate system, the dead church leaders. **Child Shadow Integration: Altercation with Dad** is the first instance where Tyrant energy operates from an interior figure — the Father complex — and imposes itself directly on the dreamer's ego rather than on other characters.
+
+The father arrives with "fists clenched," squares up "aggressively in my personal space, fists out." He accuses the dreamer of carrying a knife (a folding comb). He refuses evidence to the contrary — snapping the comb in two, laughing, pronouncing the dreamer "in trouble in his school year." This is the Tyrant's characteristic mode: the insecurity that projects threat where none exists, the refusal to update in the face of evidence, the exercise of power to diminish rather than bless.
+
+What makes this encounter psychologically significant is the dreamer's response:
+
+> *"I put my hand on his fists and tell him I love him."*
+
+This is the mature King's blessing function deployed at the moment when Tyrant energy would most easily generate a counter-Tyrant response. The ego does not match aggression with aggression; it covers the fists with a hand and speaks love. This is King-energy consciously chosen against the pull of the Warrior's defensive instinct — an act of blessing in the face of threat.
+
+The Father complex does not respond with softening. It doubles down, snaps the comb, continues the false accusation. The blessing does not immediately transform the Tyrant. But the dreamer who chose blessing over combat has held the King archetype in exactly the condition Moore and Gillette describe: non-reactive, oriented toward the other's wellbeing, refusing to let the Tyrant's energy infect his own response.
+
+The regression that follows — suddenly young and panicking, scrambling to understand what "trouble in his school year" means — shows the cost: the King's authority collapses under the Father complex's pressure not because the King was wrong but because the Father complex reaches past the adult ego to the child beneath it. The Weakling is not chosen; it is triggered by paternal authority reaching back through time.
+
 ## The Weakling Shadow
 
 The Weakling is more interior and more honest in its appearances.
@@ -65,9 +81,12 @@ The dreamer's three-phase arc in **Author, Knight, Elder** is precisely this dev
 | Positive: Blessing | Lord Protector reforming democracy | *Dream Prison* |
 | Positive: Custodial order | Elder holding all things in common | *Author, Knight, Elder* |
 | Positive: Structural cultivation | New manager adding good products to the front | *Supermarket of Sin* |
+| Positive: Blessing under Tyrant pressure | Hand on fists; "I love you" to an aggressive father | *Child Shadow Integration* |
 | Tyrant (active shadow) | Putin-figure hunting gifted children | *Museum* |
 | Tyrant (institutional) | Corporate Dream Prison | *Dream Prison* |
 | Tyrant (hierarchical) | Gold-robed dead leaders | *Snippets* |
+| Tyrant (interior/paternal) | Father complex with clenched fists; accusing, snapping | *Child Shadow Integration* |
+| Weakling (triggered regression) | Suddenly young and panicking under Father complex | *Child Shadow Integration* |
 | Weakling (passive shadow) | Stopping saying "Jesus is Lord" for fear | *Jesus Is Lord* |
 | Weakling (silenced) | Choked before completing the declaration | *Chosen Ones with the Mark* |
 
