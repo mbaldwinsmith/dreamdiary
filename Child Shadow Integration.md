@@ -3,7 +3,7 @@
 
 ## Monster Baby
 
-* PLaying with a baby
+* Playing with a baby
 * Questioning my Mum's discipline
 * Baby has a violent tantrum
 * Baby transforms into a monster
@@ -40,7 +40,7 @@
  * They're harmless and babbling
  * A pretty older woman lies next to me and looks at me fondly
  * I gentle break free of the babies and explain my nightmare
- * I explain my realisation that youn children are mini-tyrants
+ * I explain my realisation that young children are mini-tyrants
  * Everyone is outraged
  * I stand up and my Dad storms over aggressively, fists clenched
  * He squares up to me, in my personal space, fists out
@@ -66,4 +66,4 @@
 * A voice weeps, "nobody likes me", echoing my inconsolable tears during depression as a teenager
 * I cry and say "I love you", clearer this time.
 * The shadow turns into a watery blob and slowly dissipates
-* I wake up
+* I wake up crying and hugging myself
