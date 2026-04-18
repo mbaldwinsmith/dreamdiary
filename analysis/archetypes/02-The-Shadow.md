@@ -40,6 +40,30 @@ This same mechanism appears in subtler forms elsewhere. In **Fleeing Little Demo
 
 In **Dream Prison**, the dreamer emerges from captivity covered in mouths — a visceral image of the repressed speaking all at once — but instead of horror, he *sings* to the inmates about inner beauty. He does not silence the mouths; he gives them a song.
 
+## Stage Three Paradigm Case: *Child Shadow Integration*
+
+**Child Shadow Integration** is the corpus's most complete and psychologically precise integration sequence, and the one that most fully reveals *what the Shadow actually is at its core*.
+
+The dream opens in **Monster Baby** with the Child archetype in its most ambivalent form: a baby who throws a violent tantrum and transforms — Baby → Monster → Dragon. The escalation follows the classic pattern of what happens when shadow energy is denied containment. But the dragon does not simply threaten: it *complains it has nowhere to roost*. This is the Shadow's own statement of its condition — not malevolence but homelessness. The dragon is the Child-Shadow seeking a legitimate place to be, and finding none.
+
+The final segment — **Confronting the Twisting Shadow** — is the most fully articulated integration scene in the diary. It moves through three distinct phases that together form a complete integration arc:
+
+**Phase one: The heroic approach.** The dreamer becomes lucid, fills with rage, and storms after the Shadow. This is the appropriate first move — the ego asserting itself, refusing to be passive before the unconscious. But rage and pursuit are not sufficient.
+
+**Phase two: The turn.** *"Suddenly filled with compassion."* The pivot is the key. The shadow "writhes and convulses" — it is not aggressive, it is in pain. The dreamer's gaze hurts it. The Shadow here is not a predator but a sufferer. The dreamer tries to say "I love you" but it comes out muffled — the first attempt at integration is still clumsy, not yet embodied.
+
+**Phase three: Loving presence.** Rather than speaking, the dreamer *sits down*. He wraps his arms around himself. He is not directing love at the Shadow from a safe distance — he is enacting self-compassion in his own body, and simply remaining *with* the Shadow in the dark. No agenda. No demands.
+
+Then the Shadow speaks:
+
+> *"Nobody likes me."*
+
+This is the wound beneath every prior Shadow manifestation in the corpus — beneath the hulking figure, the evil twin, the dragon with nowhere to roost. The Shadow's core is not evil but *rejected*. It is the part of the self that was left behind — specifically, the dreamer's own adolescent self, weeping in depression, convinced of its own unlovability. When the dreamer finally says "I love you" clearly, the Shadow turns into a watery blob and slowly dissipates.
+
+The method differs subtly but crucially from *Evil Twin Integrated*'s "stop chasing and absorb." Here the mechanism is not detachment but *encounter* — the ego does not neutrally allow the Shadow to dissolve; it *moves toward* it with active love. The integration requires the ego to recognise its own culpability: it left this part behind. Upon waking, the dreamer found himself hugging his own body — the somatic bridge confirming that the integration was not merely symbolic but had crossed into the physical register.
+
+The dreamer later articulated the recognition that completed the work: *"I left the twisting shadows of despair behind, but I left you trapped there."* Recovery from depression can paradoxically involve abandoning the part of the self that was most acutely suffering — the ego escapes the darkness and seals the wound over rather than healing it. The Shadow had been waiting, frozen at that age, ever since.
+
 ## Shadow-as-Body and Animal Nature
 
 Several dreams use the body as Shadow territory. The boar-man in **Breaking Out**, the mouths covering the face and torso in **Dream Prison**, the barbed and transgressive sexuality throughout — these suggest the dreamer's Shadow is substantially located in embodied, instinctual life. The spiritual formation evident throughout the diary may itself generate this Shadow: the more the conscious ego aligns with the sacred, the more the body's raw animal drives press from below.
@@ -52,6 +76,6 @@ The Shadow in this corpus moves through three clear stages:
 
 1. **Externalised** — demon, monster, dictator, corporation; fought at a distance
 2. **Confronted** — the evil twin who cannot be defeated by combat
-3. **Integrated** — absorbed through stillness, acknowledged through song, dispersed by direct gaze
+3. **Integrated** — absorbed through stillness, acknowledged through song, dispersed by direct gaze; and in its fullest form, dissolved through loving presence with the wound beneath
 
-The arc suggests a psyche that has done substantial Shadow work. The most important move — named explicitly by the Shadow itself in *Evil Twin Integrated* — is the recognition that integration requires not victory but relationship: the ego must learn to coexist with what it has disowned rather than exterminate it.
+The arc suggests a psyche that has done substantial Shadow work. Two integration paradigm cases emerge. *Evil Twin Integrated* names the mechanism: combat only reinforces the Shadow's oppositional existence; integration requires the ego to stop fighting. *Child Shadow Integration* deepens this further: the Shadow's core is not a power to be neutralised but a *wound to be loved*. The dragon had nowhere to roost; the twisting shadow wept that nobody liked it. Both images name the same truth — the Shadow is the self that was left behind, and it is waiting not to be defeated but to be claimed.

@@ -20,6 +20,20 @@ The broken rosary is rich: the prayer instrument that connected her to the divin
 
 The dreamer's mother appears in **Grandad Paddy** in an extraordinary image: she is "laying her heart before God." The gesture is completely exposed, completely trusting — the opposite of the defended ego. This is the Great Mother's positive pole in its most intimate human form: a woman offering everything she is to the source of everything. Paddy's intercession at her shoulder suggests the ancestral Great Mother field actively working on behalf of the living.
 
+## The Negative Great Mother — The Sorceress in the Castle
+
+**Child Shadow Integration: Storming the Castle** contains a Terrible Mother figure in her most architecturally powerful form: the evil sorceress who lives in the towering castle, behind a forcefield. She never appears in person. Her presence is *structural* — the castle is her body, the forcefield her immune system, the knight her proxy. The dreamer must bellow energy at the walls just to make them flicker.
+
+This is the Terrible Mother as fortress: the Great Mother principle turned inward, sealed, inaccessible, defended against the approach of the masculine ego. She does not consume directly (as the Sourceress does) or poison (as the needle-mouthed woman does); she *withholds*. The castle keeps something inside it — the sorceress, but also whatever she contains and will not release. The dreamer attacks the fortress on behalf of a child he is guiding through the dark forest (the Child archetype as companion), which frames the entire encounter as a rescue from maternal captivity.
+
+The castle's crumbling under the dreamer's bellow is a temporary victory. The Jester's concurrent work ensures the dreamer does not emerge with his authority intact. The Terrible Mother, in her most sophisticated form, does not need to fight directly: her defences are designed to exhaust and humiliate the attacker while she remains untouched within.
+
+## The Good Mother as Containing Space — *Child Shadow Integration*
+
+The barn in **Altercation with Dad** is a maternal geography: earthy, warm, dimly lit, filled with babbling babies — harmless, cute, teeming with life. The dreamer wakes there covered in infants, which is not threatening but genuinely nurturing — contained within the Great Mother's fecundity without being smothered by it. The pretty older woman lying beside him and looking fondly adds the personal, relational warmth that the Great Mother's impersonal containing spaces (the church, the swimming pool, purgatory) do not usually provide.
+
+This is the corpus's closest image of the Good Mother in a domestic register: not the sacred architecture of the celestial citadel or the ritual demand of the church pool, but a barn, babies, and a woman's fond gaze. It is precisely this warmth the Father complex enters and destroys — not by attacking the maternal space directly, but by filling it with accusation, aggression, and the dreamer's regression to a frightened child. The Good Mother's barn cannot hold the Father complex and the dreamer simultaneously in their adult configuration.
+
 ## The Negative Great Mother — The Sourceress
 
 **EverMind** contains the corpus's most explicit Terrible Mother figure: the Sourceress, who is "obsessed with celebrity, builds BabyLondon," and whose relationship with Calvin Trent involves torture. The Sourceress is a dark feminine power who creates (BabyLondon — a simulation-within-the-simulation, a false world) not to nurture but to dominate and display. She constructs a world of mirrors (celebrity culture, glamour, the performed self) in which everything reflects back her own desire for recognition.
@@ -63,6 +77,8 @@ The Great Mother in this corpus:
 | Grandmother's house / Purgatory | Containing geography | *Purgatory* | Liminal Good Mother: containing but not nourishing |
 | Nan with broken rosary | Human ancestral presence | *Purgatory*, *Nana Noreen* | Good Mother reduced: connection frayed |
 | Grandad Paddy / mother | Ancestral intercession / offered heart | *Grandad Paddy* | Good Mother field: generative across death |
+| Barn with babies / fond woman | Domestic warmth | *Child Shadow Integration* | Good Mother in intimate register: earthy, fecund, relational |
+| Sorceress in the castle | Terrible Mother: sealed, inaccessible | *Child Shadow Integration* | Negative pole: withholds, uses proxy defenders, exhausts without engaging |
 | The Sourceress / BabyLondon | Terrible Mother: creator-destroyer | *EverMind* | Negative pole: false creation, domination |
 | Needle-mouthed woman | Terrible Mother: nourishment as poison | *Jesus Is Lord* | Negative pole: care weaponised |
 | Church swimming pool | Sacred womb | *Renewal Dream* | Great Mother as ritual requirement |

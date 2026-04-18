@@ -42,6 +42,22 @@ The woman with a needle for a mouth who lunges at the dreamer in **Jesus Is Lord
 
 The "menacing figures surrounding the dreamer and offering a 'depression injection'" constitute a collective Trickster-Shadow: they present as helpers (the injection, the crowd around a person in distress) but intend harm. Their menace is in the mimicry of care — the Trickster's deepest move, which is to put on the face of what you need most in order to neutralise your defences.
 
+## The Jester — *Child Shadow Integration: Storming the Castle*
+
+The Jester of **Storming the Castle** is the most purely archetypal Trickster in the entire corpus, and his method is more sophisticated than any prior figure.
+
+The setup is an apparently straightforward Hero-sequence: forcefield, crumbling castle, challenging knight, sword duel. The dreamer wins. Then:
+
+> *"Knight says while we were fighting the jester was castrating me."*
+
+The Jester never appears in direct conflict. He is not on the battlefield. He operates in the social register — spreading rumours, eroding the dreamer's masculine credibility and authority — while the dreamer's attention is entirely consumed by the combat the Trickster arranged for exactly that purpose. The knight was a distraction. The Jester is the real adversary, and he wins by never being seen.
+
+This is the Trickster at his most architecturally sophisticated: he does not confront the Hero, he *stages* a confrontation the Hero will readily engage with, then works the blind spot that engagement creates. The hero's strength — willingness to fight — is weaponised against him. The dreamer tries to will the subsequent images of humiliation away through semi-lucid intent. He cannot. The Trickster's work is already done; it cannot be unwilled.
+
+The castration imagery is precise. In dream symbolism, castration is not primarily sexual — it is the severing of generative authority, the removal of the power to create, to act, to be taken seriously. The Jester attacks not the dreamer's body but his standing in the communal field: his reputation, his credibility, his masculine dignity as recognised by others. This is the Trickster's preferred target. He rarely destroys directly; he undermines the conditions that make power possible.
+
+What the Jester reveals: the Hero cannot win by fighting what the Trickster presents. The combat is always, in part, misdirection.
+
 ## The Squid Game Setting — *Squid Game*
 
 **Squid Game** presents perhaps the most philosophically explicit Trickster dream in the corpus:
@@ -64,6 +80,7 @@ The Trickster in this corpus:
 | Atheist Catholic policeman | Self-contradicting believer/non-believer | *Monkey Junkie* | Contradiction creates space for genuine testimony |
 | Hidden performers | Staged unmasking of the expected | *Jesus Is Lord* | Nothing in the social field is as it appears |
 | Needle-mouthed woman | Help that is a weapon | *Jesus Is Lord* | Care can be weaponised; wit is the correct counter |
+| The Jester | Stages combat as distraction; operates in blind spot | *Child Shadow Integration* | The Hero's strength is the Trickster's best weapon against him |
 | Reality itself | Randomness projected as pattern | *Squid Game* | The most unsettling Trickster needs no face |
 
-Across these appearances the Trickster performs his essential function: he dismantles false certainty. The bible scholar dismantles intellectual authority; the policeman dismantles ideological coherence; the performers dismantle social legibility; the Squid Game dismantles cosmic order. Each dismantling, uncomfortable as it is, leaves the dreamer with more reliable footing than the assumption it removed.
+Across these appearances the Trickster performs his essential function: he dismantles false certainty. The bible scholar dismantles intellectual authority; the policeman dismantles ideological coherence; the performers dismantle social legibility; the Jester dismantles heroic efficacy by revealing that the battlefield the Hero won was not the real battlefield; the Squid Game dismantles cosmic order. Each dismantling, uncomfortable as it is, leaves the dreamer with more reliable footing than the assumption it removed.

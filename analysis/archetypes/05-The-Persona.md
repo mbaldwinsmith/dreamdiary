@@ -45,6 +45,18 @@ In **Arguing About Resurrection**, the dreamer defends the bodily resurrection a
 
 **Confession Of Calling To Dad** literalises the stakes: the dreamer tells his father about his spiritual calling in a lucid, Edinburgh-like cityscape of remarkable sensory richness. The abundance of sensory detail (touching everything, singing) suggests that the act of authentic disclosure unlocks the world — the Persona's suppression had muted the dreamscape itself.
 
+## The Persona Destroyed from Outside — *Child Shadow Integration*
+
+**Storming the Castle** presents a Persona attack of unusual subtlety. The Knight in shining white armour who jumps down to challenge the dreamer is a Persona figure — an idealised image of the heroic self, precisely the form the dreamer's ego is predisposed to recognise and engage with as an equal. The duel is conducted on Persona terms: swords, a formal challenge, the dignity of combat. The dreamer wins.
+
+But the Jester has already been at work. While the ego was busy performing the Persona's script — the honourable sword fight, the righteous assault on the evil sorceress's castle — the Jester undermined the dreamer's Persona in the social field where it actually lives: through rumour, through the image of castration, through the stripping away of masculine credibility in the eyes of others. The dreamer is left with a Persona victory (the duel) and a Persona collapse (his standing in the communal field). He cannot will either the images or the loss away.
+
+This is the Persona's particular vulnerability: it exists in the gap between inner identity and social recognition, and it can be destroyed without the ego ever being directly confronted. The Knight was the Persona's idealised face; the Jester was the force that knew its actual location.
+
+**Altercation with Dad** presents the inverse: a Persona attack coming not from the social field but from within the family. The father accuses the dreamer of carrying a knife. The dreamer produces his folding comb. The Father complex does not update its conclusion — it snaps the comb in half, laughs, and tells the dreamer he is "in trouble in his school year." The dreamer is suddenly young and panicking.
+
+The mechanism is precise: the Father complex does not engage with the dreamer's actual Persona (the adult who just placed his hand gently on clenched fists and spoke love). It projects onto him a Persona the dreamer does not wear — the delinquent boy, the one in trouble, the one carrying weapons. And the regression it triggers (suddenly young) suggests the Persona's adult coherence is genuinely fragile under paternal pressure. The Father complex does not need to be right to be effective.
+
 ## The Persona Trap as Architecture — *Dream Prison* and Simulation
 
 At its most extreme, the Persona-trap becomes architectural. **Dream Prison** presents a corporate-run simulation as prison: the dreamer is held inside a "shoddy sim of reality" not by physical bars but by constructed consensus — the world of the prison is accepted as real because everyone inside accepts it. This is Persona-as-total-environment: a shared, enforced mask with no outside.
@@ -70,4 +82,4 @@ The Persona in this diary:
 - Dissolves at its extreme into a constructed reality that must be escaped from inside (*Dream Prison*)
 - Must sometimes be strategically adopted to protect authentic identity from conscription (*Trumpety Trump*)
 
-What emerges is not a rejection of the Persona but a *calibrated* relationship with it: honest enough for genuine encounter, modest enough to avoid inflation, flexible enough to camouflage when the social field demands a figurehead.
+What emerges is not a rejection of the Persona but a *calibrated* relationship with it: honest enough for genuine encounter, modest enough to avoid inflation, flexible enough to camouflage when the social field demands a figurehead. *Child Shadow Integration* adds a further dimension: the Persona can be destroyed not by the ego's own failing but by forces operating in its blind spot (the Jester's rumours) or by the projection of those who refuse to see it clearly (the Father who calls the comb a knife). The Persona is not only an interior construct — it depends on the social field's willingness to recognise it, and that recognition can be revoked.
