@@ -46,6 +46,18 @@ This connects directly to **Trumpety Trump**: the conductor who awakens too many
 
 ---
 
+## The Magician's Awareness Surrendered — *Child Shadow Integration*
+
+**Child Shadow Integration** presents two contrasting Magician moments that together describe the archetype's most sophisticated limitation.
+
+In **Storming the Castle**, the dreamer becomes semi-lucid — the Magician's awareness activates, recognising the dream-structure from within it. He tries to will the damaging images away. He cannot. The Magician's characteristic tool (knowledge applied as control) fails completely against Shadow material. This is a deeper form of the Naive shadow than the corpus has previously shown: not the refusal of knowledge out of social discomfort, but the *inadequacy* of Magician-style knowledge as an instrument for Shadow integration. The Magician who recognises the dream but cannot alter its content has encountered the limit of his archetype's domain. Some territory does not yield to knowing.
+
+**Confronting the Twisting Shadow** shows the mature response to this limit. The dreamer is fully lucid — the Magician's observer-position is intact, the dream is recognised as dream. But this time the Magician's awareness is not deployed as control. The dreamer does not attempt to reshape the dreamscape or will the shadow into a different form. He uses his lucidity for something the Magician's instinct would not naturally produce: he simply *sits down*. He wraps his arms around himself. He is present without agenda.
+
+This is the Magician archetype consciously yielding its characteristic mode — the manipulation of hidden structures — in favour of something that requires the *absence* of manipulation. The Lover's compassionate presence, not the Magician's skilled knowing, is what the shadow needs. The Magician's contribution is recognising this and stepping aside — which is itself a Magician act of a high order: knowing when not to use knowledge.
+
+The contrast between the two moments maps exactly onto Moore and Gillette's description of the Magician's highest function: not just holding knowledge but knowing which knowledge is appropriate to which situation, and having the discipline to withhold the tool when its use would obstruct the outcome.
+
 ## The Manipulator Shadow
 
 The Manipulator is the Magician's active shadow: the one who uses knowledge not to serve and transmit but to control. In this corpus the Manipulator appears almost entirely in antagonist form.
@@ -85,10 +97,12 @@ The dreamer's three-phase arc in **Author, Knight, Elder** shows this integratio
 | Positive: Code-bearing | Rewriting Bible from memory in far future | *Apocalypse* |
 | Positive: Lucid awareness | Rubbing surfaces, Jesus Prayer as anchor | Multiple lucid dreams |
 | Positive: Creative discovery | CodeSong and beauty within simulation | *EverMind* |
+| Positive: Yielding control | Lucid but sitting still; Magician steps aside for the Lover | *Child Shadow Integration* |
 | Manipulator (cosmological) | Sourceress building BabyLondon, torturing | *EverMind* |
 | Manipulator (systemic) | Insect-editors with black crackling light | *Snippets* |
 | Manipulator (false) | Bible scholar's apocrypha-knowledge that dissolves | *Driving Away Demons* |
+| Naive (domain limit) | Semi-lucid; tries to will away shadow images; cannot | *Child Shadow Integration* |
 | Naive (withheld knowledge) | Not telling refugees to call on Jesus | *Driving Away Demons* |
 | Naive (self-exemption) | Rationalising muddy entry into sacred pool | *Renewal Dream* |
 
-The Magician is arguably the archetype most central to the dreamer's sense of vocation: the herald, conductor, reality-prompter, lucid-dream practitioner, and theological explicator. The shadow work required is primarily in the Naive register — the gap between what the dreamer knows and what he is willing to say or enact in the relational world.
+The Magician is arguably the archetype most central to the dreamer's sense of vocation: the herald, conductor, reality-prompter, lucid-dream practitioner, and theological explicator. The shadow work required is primarily in the Naive register — the gap between what the dreamer knows and what he is willing to say or enact in the relational world. *Child Shadow Integration* adds a subtler dimension: the Magician's awareness encountering its own structural limit. Knowledge cannot integrate the Shadow; only loving presence can. Knowing this, and yielding accordingly, is the Magician at his most mature.
