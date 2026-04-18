@@ -4,8 +4,8 @@
 ## Monster Baby
 
 * Playing with a baby
-* Questioning my Mum's discipline
 * Baby has a violent tantrum
+* Questioning my Mum's lack of discipline
 * Baby transforms into a monster
 * Wrestle the monster
 * Monster grows into a Dragon
