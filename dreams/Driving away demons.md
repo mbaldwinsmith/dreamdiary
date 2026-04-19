@@ -1,4 +1,4 @@
-# Driving away demons by calling on Jesus
+# Driving away demons
 *   A Bible scholar approached me in a pub, telling me i'd got the gospel wrong
 *   I invited correction
 *   he started drawing on Apocrypha, possibly gnostic 'gospels' and fragments
