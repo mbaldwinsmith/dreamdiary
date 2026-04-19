@@ -148,3 +148,21 @@ She is not absent. She is the one who makes the dreaming possible.
 The dream corpus is the prophecy. The dreams are her angels, speaking in the only language the unconscious knows: symbol, image, body, darkness, and light.
 
 She was there all along.
+
+---
+
+## The Poems as Sophianic Practice — A Deeper Reading
+
+The analysis above already recognised that the dreamer's poem *Sweet Sophia, Holy Hokhmah* is a liturgical act — a naming of Sophia that makes her more present. But the full poetic corpus does something more than that single poem can achieve alone. Taken together, the thirteen poems constitute the waking Sophianic practice that the dreams presuppose — the conscious cultivation of Wisdom that frees the unconscious to do the darker, stranger, uncontrolled work.
+
+*Since the Beginning* is the *anima mundi* in its own voice — the World Soul speaking from within creation: "I sing in every blade of grass and whisper / In the wind of the hills and dales. / I cry out in the song of the morning lark / And laugh in the gurgling of streams." This is Sophia in her Hildegardian mode — the *viriditas*, the greening power, the animating presence in all living things. The Wisdom of Solomon's description of Sophia as one who "pervades and penetrates all things" finds its most intimate poetic expression here: not abstract theology but specific presences — grass, wind, lark, stream. The *anima mundi* is not a philosophical concept; she is the particular vitality of each particular thing.
+
+*The Rose Bower* is the Sophianic encounter in its most developed, mature form — beyond the yearning of *Sweet Sophia*, beyond the instruction of the bird-woman, beyond the erotic charge of the morning dew. The bower is where the dreamer and Sophia simply *are together*, without agenda or urgency: "We sit and enjoy the company, / He laughs as soft as new snow, / as we reminisce over missed callings." The "missed callings" do not produce anguish — they are material for reminiscence, held lightly in the fragrant space of the bower. This is the Sophianic relationship at its most complete: not the seeker pursuing Wisdom, but the lover and the Beloved resting in each other's company, the Work so thoroughly done that even its incompletions are held in peace.
+
+*Even Ground* embodies the Sophianic attunement to natural rhythm rather than spiritual ambition: "Still, my heart rides with the seasons, / with no soar and crash, just gentle easings. / The cool of winter, a time of rooting depth, / and sunlit warmth, the season of creative weft." Sophia's characteristic dwelling-place is the natural order — the cycles of season, the rhythms of growth and rest, the intelligence that knows when to root and when to bloom. The euthymia the poem describes is not a psychological achievement but a Sophianic participation: the soul attuned to Wisdom's own tempo, carried by the seasons rather than fighting them.
+
+*All of My Creatures*' invitation — "Add your petals to my garden, / join the throngs who sought my pardon" — is Sophia's banquet call in its most direct form, echoing Proverbs 9:5: "Come, eat of my bread and drink of the wine I have mixed." The garden of every soul as a flower lending its unique scent to the whole is the *anima mundi*'s vision of completed creation: not a uniform paradise but the full diversity of the prima materia, each soul transmuted into its particular beauty and contributing that beauty to the common abundance. Sophia does not level her garden to uniformity — she multiplies distinction, honours difference, and finds the whole more beautiful for the particularity of each part.
+
+The poem corpus, in short, is not merely *about* Sophia — it *is* Sophia's work in the dreamer. She organises the images, orders the insights, provides the loving attention that holds the long arc together. The dreams are violent, strange, urgent, unbidden; the poems are ordered, crafted, offered with open hands. Both are required. The dreams do the *nigredo* and the *rubedo*; the poems do the *albedo* and the *citrinitas* — the reflecting, the clarifying, the naming of what the furnace has produced. Together, the dreams and the poems constitute the full *vas hermeticum* of this particular soul's Work.
+
+She was there all along. The poems prove it.

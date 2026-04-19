@@ -85,3 +85,19 @@ The Great Mother in this corpus:
 | Water (general) | Great Mother element | *Heavenly Ascension*, *River Of Grief*, etc. | Transformation medium; ego must be sustained within it |
 
 The Great Mother in this corpus is not a figure the dreamer encounters and relates to as a person. She is the field within which the entire drama takes place — the containing architecture of the sacred world, the medium of transformation, and the ancestral matrix from which the dreamer emerges and to which he will return. Her positive pole is glimpsed in the ancestors' persistence and the sacred spaces' welcome; her negative pole erupts in the Sourceress and the needle-mouthed woman. The ego's task, as always, is to move through both without being devoured by either.
+
+---
+
+## The Great Mother in the Poems
+
+The poems significantly enrich the Great Mother analysis by providing, in several cases, the positive Great Mother voice that is largely absent from the dreams.
+
+*Sweet Sophia, Holy Hokhmah* is the collection's most concentrated Great Mother poem. Sophia is explicitly invoked as "Womb of all creation, Source of all being, / Sustainer of all life" — the full Great Mother attribute-set, the containing, generating, sustaining principle that precedes individual existence. She is simultaneously "Mother of the lost, Sister of the wise" — the Good Mother in both her nurturing and companioning aspects. "Under Your loving wings, an eternal prize" — the sheltering image of the Great Mother's positive pole. The poem then moves through the shadow register without losing the positive frame: the Sophia who is "Pained, Yourself, for loving again & again" is a Great Mother who has absorbed the cost of her own generativity, suffering in and through her creatures rather than demanding they suffer alone. This distinguishes her sharply from the corpus's Terrible Mother figures (the Sourceress who consumes, the sorceress who withholds). The final image — "In eternal love, a garden of many flowers" — restates the Great Mother's positive completion: the garden of many flowers as the telos toward which all the Mother's containing work has been moving.
+
+*Since the Beginning* contributes through the image of cosmic fecundity: "every soul a flower all adding sweet scent / And lending the hue of their petals / To a timeless dance under my breath." The divine "breath" that sustains the dance is Great Mother energy in its most encompassing form — the medium within which all creation moves, the atmosphere that is never absent. "My being is the being in all things" — the Great Mother as pervasive ground rather than encountered figure.
+
+*All of My Creatures* gives the Great Mother the invitation-voice: "Add your petals to my garden, / join the throngs who sought my pardon." The garden is already filled; the invitation is to join what is already in motion. This is the Good Mother's characteristic offer — not demanding that the child earn a place but extending the space to include.
+
+*The Rose Bower* gives the Great Mother in her most intimate, domestic form: a bower where flowers always bloom, a sweet scent that calls home. The bower is a maternal space — enclosed, fragrant, perennially generative — and the encounter within it (quiet companionship, shared presence, soft laughter) represents the Good Mother's relational warmth the dream-corpus identified as largely absent in personal form. The poem supplies what the dreams mostly lack: the close, non-demanding, nourishing presence that holds without requiring performance.
+
+*Imago Dei* contributes through the garden imagery and the theology of the body: "in a garden of flowers of every hue, / people of all kinds, from every nation, / glorifying God in all they do." This eschatological garden, like those in *Since the Beginning* and *All of My Creatures*, is the Great Mother's completed vision — the diverse, flowering community held within a space that is at once intimate and universal.

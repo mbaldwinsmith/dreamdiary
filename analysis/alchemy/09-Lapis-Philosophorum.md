@@ -140,3 +140,19 @@ The Philosopher's Stone is not the end of the story. It is the beginning of the 
 *Aurum nostrum non est aurum vulgi.* Our gold is not the gold of the common people. It is the gold of the completed soul, carried through fire and water and shadow and light, aligned with the pattern of the one who went all the way through and came back carrying the keys of death and hell.
 
 The Work continues.
+
+---
+
+## The Lapis in the Poems
+
+The poems give the Lapis its most direct theological articulation — identifying the Stone's properties with the precision that the dreams can only embody through image.
+
+*All of My Creatures* announces the Lapis's defining act in its opening couplet: "All of my creatures have my breath, / for my children I conquered death." The Lapis conquers death — this is its essential property, the one that distinguishes the genuine Stone from every imitation. The voice that speaks this is the divine Lapis himself, addressing his creation from within his completed Work. "I created the stars and the Sun, / so you'd find me in every one" — the Lapis as the *tinctura* present in all things: not a substance to be manufactured but the animating quality that was always already there, waiting to be recognised.
+
+*For Love, In Love, He Made You* articulates the Lapis's universality: "From saving blood, you can never fall too far." This is the *lapis exillis* in its most pastoral register: the Stone does not merely transmute the prepared or the pure — it reaches the fallen, the far-gone, the apparently irredeemable. "Since before the beginning of time, / He's had you in His holy mind" — the Lapis is not an emergency response to human failure but the original intention of creation: the gold was always the plan, the darkness a stage in the Work, not its defeat.
+
+*Pour Out My Soul* receives the Lapis's mark directly: "Upon my head, your mark, / your holy light is mine." The *tinctura* — the dyeing of the soul by the Lapis — appears here as the mark on the head, the holy light taken into the individual. This is the Lapis operating in its micro-scale fractal mode: the dreamer's "fractal image" aligned to Christ in *Dream Prison* is here named in its waking-life form. "I won't succumb to dark, / In me, Your light will shine" — the soul that carries the Lapis's mark becomes itself a tincturing agent, shining the gold into the space around it.
+
+*Radiant Knight*'s appeal — "When under the shadow of death, / I search the darkness for Your light. / I long for the healing kiss of Your breath, / that renews my heart by Your might" — is the prayer of the soul that knows the Lapis exists but has not yet fully entered the rubedo. The "healing kiss of Your breath" is the *spiritus* of the Lapis: not the force of the Stone but its breath, the *aqua vitae* that renews from within. This is the Lapis encountered in the via negativa — sought in the shadow of death rather than in the light of triumph — which is precisely the *lapis exillis* mode: found in the despised place, the dark, the weakness, rather than in the place of power.
+
+*Imago Dei*'s conclusion carries the Lapis's eschatological promise for the body: "By grace, our new bodies too will go where the Son went. / A garden of many flowers, each lending their sweet scent." The *corpus glorificationis* — the rubedo's bodily outcome — is not the escape of the spirit from matter but the transmutation of the material into its highest potential. Each soul a flower: the prima materia of every individual life refined through the Work into a unique, fragrant contribution to the garden that is the Lapis in its communal dimension.

@@ -83,3 +83,19 @@ The Hero in this diary is:
 - **Resolutely distributed**: many Chosen Ones, collective awakening, Viceroy rather than king
 
 The arc is from heroic ego-strength toward what Jung called the *individuated* hero: one who has suffered enough defeat to know that the greatest battles are interior, and that victory is indistinguishable from surrender to a larger order. *Child Shadow Integration* adds the sharpest formulation: the Hero who wins the duel but loses the field (*Storming the Castle*), and the Hero who lays his hand on his father's fists and speaks love instead (*Altercation with Dad*). These are the same lesson in two registers — exterior and intimate — and together they define the Hero this diary is becoming.
+
+---
+
+## The Hero in the Poems
+
+*Radiant Knight* is the most complete poetic articulation of the Hero archetype in the collection — and it is instructive precisely because it does not present the Hero triumphantly but as a servant.
+
+The poem opens in praise rather than declaration: "Praise be to you, Eternal Light, / who reigns enthroned in heaven above. / Ready to humbly serve, your radiant knight, / you illuminate my eyes with love." The Knight's identity is immediately grounded in something prior to himself — he is illuminated, not self-luminous. The Pauline armour that follows (sword of the Word, breastplate of righteousness, shield of faith, belt of truth, feet bearing good news) is taken on not for conquest but for service to the weak: "Lord of Light, lead me to the weak / and extend to them your faithful shield."
+
+This is the Hero at the stage the dreams are moving toward: the warrior's strength deployed not for ego-assertion but for the protection of others. "Give me words of power to speak / when I face the evil one in the field" — the weapon is again the word, consistent with the dream-corpus's repeated demonstration that spoken declaration is more potent than physical force.
+
+The poem's most important movement is its descent into vulnerability: "When under the shadow of death, / I search the darkness for Your light." The Hero does not escape the shadow of death; he moves into it and searches for light from within it. "I long for the healing kiss of Your breath, / that renews my heart by Your might" — the renewal comes from outside the ego, from the divine source the Hero serves. This is the warrior who has learned what the dreams teach through failure: the greatest battles are not won by ego-strength but by receptivity to a larger power.
+
+*A Name Untold* traces the complete Hero-journey in miniature. The poem moves through the phases the *Author, Knight, Elder* entry identifies: the wandering through many identities (exile, knight radiant, keeper of hearths, pilgrim), the arrival at something prior to all roles ("something yet escapes my hold"), and finally the reception of an identity that transcends the warrior persona — "the Oaken Pilgrim." The oak is not soft; it endures, it gives shade, it is "humbled might." But its strength is structural and relational rather than combative.
+
+*Pour Out My Soul*'s martial stanza — "By holy Word I fight / so more may be reborn / I am a child of light / who sings now of the dawn" — locates the Hero's combat in its correct register. The fight is not for territorial gain but for others' rebirth; the instrument is the sung word; the identity is not warrior but "child of light." The Hero who fights with this orientation is the one the corpus has been building toward.

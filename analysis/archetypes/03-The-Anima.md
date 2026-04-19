@@ -79,3 +79,17 @@ The Anima in this diary:
 | Sophia | The dreamer as beautiful woman | *Phoenix Reborn* | Integrated, creative, life-restoring |
 
 The trajectory is genuine development. The diary does not stay at Eve; it works its way, unsteadily but persistently, toward the Anima as inner wisdom and creative source.
+
+---
+
+## The Anima in the Poems
+
+The poems substantially enrich the Anima analysis, particularly at the Sophia and Mary levels where the dream-corpus's evidence was thinner.
+
+*Sweet Sophia, Holy Hokhmah* is the most direct and complete Anima-at-Sophia poem in the collection. The poem addresses Sophia through her Hebrew name (Hokhmah, the Wisdom personified in Proverbs) and through her seven pillars (the seven gifts of the Spirit), then locates her at the intersection of cosmic creativity and intimate suffering: "Womb of all creation, Source of all being, / Sustainer of all life; the blind, seeing. / Lover of my soul, redeemer of my pain, / Pained, Yourself, for loving again & again."
+
+This is the Sophia who has fully incorporated the shadow of the Anima's development: she is not above suffering (she is "pained" by her own love) and not detached from creation (she is its womb). The poem then performs the most radical move in the entire poetic corpus — identifying Sophia with the crucified Christ: "Arms outstretched on a cross, in my place." The Wisdom figure is not separated from the redemptive act but is its inner face. This identification is theologically bold and psychologically significant: it integrates the Anima at her highest level with the Self-symbol, suggesting they are not separate figures but aspects of the same ground. The final image — "Her loving pains and Yours are made ours, / In eternal love, a garden of many flowers" — dissolves the distinction between the individual's Anima-encounter and the cosmic drama of love and redemption. The personal Sophia becomes the communal Sophia, her garden populated by every soul.
+
+*The Rose Bower* gives the Sophia encounter in its most intimate and contemplative mode. The bower is "where the flowers always bloom" — the Anima's garden as the location of sustained presence, not occasional visitation. The encounter described is not erotic (no Eve-level charge), not corrective (no Mary-level moral check), and not visionary (no expanded perception as in the Helen-level three-eyed woman). It is simply relational: "We sit and enjoy the company, / He laughs as soft as new snow." Though the poem's beloved is the divine figure, the quality of encounter — wordless companionship, shared reminiscence, gentle presence — represents the relational maturity toward which all Anima development moves: a relationship that no longer needs dramatic content to sustain itself.
+
+*Imago Dei* contributes to the Anima analysis through its theology of the body and mutual self-gift: "Man and woman, made for communion, / mutual self-gift in perfect union. / Complementary halves of supplementary whole." This theological framework gives the intellectual architecture that the dreams embody in image: the sacred feminine is not merely the dreamer's projection but a genuine counterpart, a "complementary half" of a "supplementary whole." The poem's treatment of sexual union as sacramental sign — "even in the throes of sexual union, / we find signs of the ultimate communion" — recasts the Eve-level Anima encounters of the dreams: they are not merely instinctual but sign-bearing, pointing beyond themselves to the ultimate communion that Sophia embodies.

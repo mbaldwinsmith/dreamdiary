@@ -119,3 +119,19 @@ The rubedo in this corpus consistently involves:
 6. **Grace, not achievement**: the ascent is *received*; the dreamer is carried, not climbing
 
 The rubedo is not the end of the story. It is the *beginning of the story the Work was preparing for*. The gold formed in the stone does not retire — it *transmutes everything it touches*.
+
+---
+
+## The Rubedo in the Poems
+
+The poems give the rubedo its fullest theological articulation — particularly the aspects of resurrection, communal completion, and the glorified body that the dreams can only gesture toward.
+
+*Imago Dei* supplies the rubedo's theological foundation: "For glory our bodies are destined, / God's will now fulfilled, once questioned." The *corpus glorificationis* — the glorified body of the rubedo — is explicitly the telos of the Work. "By grace, our new bodies too will go where the Son went" — the rubedo is resurrection, the body carried through the complete arc of the Work not transcended but transformed. "He appeared in locked rooms, to hundreds at a time, / whatever the mystery, our new bodies will be sublime" — the post-resurrection appearances of the Lapis-Christ are the model of the rubedo body: physical yet not bound, recognisable yet transfigured.
+
+*All of My Creatures* gives the rubedo as communal completion — the gathering of the completed Work: "There in heavenly light we dwell, / and serpent foe of Eve do quell. / Peace now shall reign, forever more, / come to God's Lamb and adore." The *pax perpetua* of the rubedo is not the peace of the albedo's individual stillness but the peace of a cosmos whose conflicts have been permanently resolved. The serpent — the shadow figure of the entire drama — is "quelled" not by destruction but by the completion of the Work that rendered its power obsolete.
+
+*For Love, In Love, He Made You* presents the rubedo as the completion of an eternal plan: "His eternal plan includes you." The dreamer's individual rubedo is not a personal achievement but the local fulfilment of a design older than the cosmos. "In a garden of flowers of every hue, / people of all kinds, from every nation, / glorifying God in all they do" — the eschatological garden is the rubedo's social body: the prima materia of every diverse human soul transmuted into its unique flowering, the massa confusa resolved into a garden of singular beauty.
+
+*The Exile*'s final lines are the rubedo arrival in its most direct lyric form: "There, washed in the sacred waters, / the light of the world dyed my soul in every hue. / Home, at last, an exile no more." The *tinctura* — the Lapis dyeing the soul in every hue — is the rubedo's definitive mark. The soul is not bleached white (albedo) or stripped bare (nigredo); it receives all colours, becomes the fullness of the spectrum, the rainbow of the complete Work.
+
+*Communion*'s final movement is the rubedo as resurrection received: "My weary soul craved reunion, / and here You raise me from the dead." This is not merely spiritual refreshment — it is the mortificatio reversed, the rubedo's defining act: *the dead are raised*. The Eucharistic table is the rubedo's ongoing enactment, the moment where the completed Work is participated in by the soul still in process.

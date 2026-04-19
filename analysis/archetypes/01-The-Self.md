@@ -38,3 +38,17 @@ The Self archetype in this diary is encountered as:
 - A cosmological ordering Word (prompting reality against entropy)
 
 The dreamer's persistent theological humility — insisting on distributed vocation, on viceroyalty rather than kingship, on being a type rather than the original — represents the psyche's own defence against the inflation that Jung identified as the chief danger of Self-encounter.
+
+---
+
+## The Self in the Poems
+
+The poems give the Self-encounter a waking, crafted form that deepens several of the dream-corpus's key dynamics.
+
+*A Name Untold* is the most complete poetic Self-encounter in the collection. The entire poem is structured as a search for identity that cannot be self-assigned: "something yet escapes my hold / to know my true kind, a name untold." The resolution comes not through the ego's own insight but through reception — "I am given my name, the Oaken Pilgrim." The passive construction is theologically and psychologically precise: the name is given, not taken. This is exactly the Self's mode of operation in the dreams — the image of Christ that opens the last door, the golden light that lifts rather than is reached. The Oaken Pilgrim identity is itself a symbol of Self-alignment: rooted in the chthonic (earth, oak, depth) yet reaching toward heaven, integrating "chthonic depths and airy heights," holding contrasts without resolving them through the ego's preference for one side.
+
+*The Exile* poem gives lyric form to the Self as attractor across separation. "Lovingly nudged, I followed the golden thread / to my heart-home at the water's mouth" — the golden thread is the Self's draw, continuous even through the exile's darkest period. The poem ends with "the light of the world dyed my soul in every hue / Home, at last, an exile no more": the Self does not merely welcome the returning ego but transforms it, saturating it with colour. The monochrome of exile becomes the full spectrum of the Self-aligned soul.
+
+*Since the Beginning* gives voice to the Self in its cosmological mode — the divine speaker of the poem occupies exactly the position the dreams assign to the Wise Old Man / Self figure: "I am Alpha and Omega, beginning and end. / Morning Star and the dark shade of evening / My being is the being in all things." The fractal metaphor of *Dream Prison* — each self a smaller iteration of the divine pattern — finds its poetic equivalent here in the image of the divine singing "in every blade of grass."
+
+*Communion* adds the Eucharistic dimension: "An exile no more, communion / calls me home, by a golden thread." The thread of the Self is here identified with the sacramental thread — the call to the table is the Self's call, and the receiving of communion is the ego's consent to alignment.

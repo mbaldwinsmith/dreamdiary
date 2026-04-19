@@ -84,3 +84,15 @@ The Trickster in this corpus:
 | Reality itself | Randomness projected as pattern | *Squid Game* | The most unsettling Trickster needs no face |
 
 Across these appearances the Trickster performs his essential function: he dismantles false certainty. The bible scholar dismantles intellectual authority; the policeman dismantles ideological coherence; the performers dismantle social legibility; the Jester dismantles heroic efficacy by revealing that the battlefield the Hero won was not the real battlefield; the Squid Game dismantles cosmic order. Each dismantling, uncomfortable as it is, leaves the dreamer with more reliable footing than the assumption it removed.
+
+---
+
+## The Trickster and the Poems
+
+The poems sit on the opposite end of the psychic register from the Trickster: where the Trickster disrupts, subverts, and destabilises, the poems tend toward resolution, praise, and the finding of stable ground. This contrast is itself instructive — the poems represent the conscious, crafted response to the Trickster's disruptions.
+
+*Even Ground* is the most direct poetic counter to the Trickster's characteristic strategy. The Trickster operates through extremes — the scholar who collapses under pressure, the performers who are never what they seem, the Jester who operates in the blind spot. The poem's "euthymia" — "a stabler mood" that neither soars nor crashes — is the psychic posture that resists the Trickster most effectively. "Still, my heart rides with the seasons, / with no soar and crash, just gentle easings" — this is the ego calibrated enough to feel the Trickster's disruptions without being captured by them.
+
+*A Name Untold*'s arrival at a stable identity after long wandering through many guises ("wearing many guises, no fixed costume") suggests a psyche that has processed the Trickster's teaching. The multiple identities that refused to settle were the Trickster's work, moving the ego through options until the received name could be heard. The Oaken Pilgrim is not immune to the Trickster but is rooted enough to absorb disruption without losing orientation.
+
+The Trickster's most useful function — revealing what needs exposing — is completed in the poems when the dreamer articulates what the Trickster's disruptions have uncovered: the gap between Persona and authentic self (*A Name Untold*), the inadequacy of ego-strength alone (*Radiant Knight*), the self-made quality of the exile (*The Exile*). The poems are the integration of what the Trickster forced into the open.

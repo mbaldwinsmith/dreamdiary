@@ -56,3 +56,15 @@ Drawing together these dream-instances, the prima materia in this corpus has the
 - **It is recognisable**: the dreamer, again and again, *recognises* the prima materia — in the supermarket, in the simulation, in the boar — even when he is inside it. This recognition is the alchemist's gift.
 
 The prima materia is not the enemy. It is the gold that has not yet found its form.
+
+---
+
+## The Prima Materia in the Poems
+
+Two poems engage the prima materia directly, giving the waking-voice account of what the dreams embody involuntarily.
+
+*The Exile* opens in the prima materia condition: "Pride-stricken, heart-locked, I stood alone. / Thought-wise, but not, I sang false truths." The locked heart is precisely the *massa confusa* in its most resistant form — not ignorant but self-deceived, not empty but misdirected. "Found only me" is the prima materia's characteristic discovery when it turns inward: the alchemist's furnace contains nothing but its own substance, and the substance has not yet begun to change. The subsequent descent — "the soul-deep opened, devouring me whole, / and I was lost in a cave of twisting shadows, / a self-made prison for my self-made self" — is the prima materia dissolving into the nigredo. But the poem carries the key insight: the prison is *self-made*, which means its dissolution is also available from within.
+
+*Imago Dei* supplies the theological prima materia of the entire corpus — the doctrine of the fall as the starting condition of the Work: "Darkness whispered, innocence was lost, / Man and woman, now ashamed, paid the cost. / Shame entered our experience for the first, / misplaced affections became our sinful thirst." This is *concupiscence* — the disordering of human desire — named as the prima materia from which the Great Work of redemption and deification must proceed. "Our bodies remained good but broken, / marred images remembered the love first spoken" — the broken yet not destroyed vessel is exactly the prima materia's condition: *vilis et vilissima*, the most despised of things, yet retaining within it the imprint of its original dignity. The Work does not create the gold from nothing; it refines what was always already there.
+
+*A Name Untold* captures the prima materia's own self-questioning: "something yet escapes my hold, / to know my true kind, a name untold." This is the boar-person's question — *"What are we even called?"* — translated into lyric. The prima materia at the threshold of self-awareness does not yet know its own nature; it only knows that it does not yet know. That unknowing is the beginning of the Work.

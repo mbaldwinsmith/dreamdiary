@@ -79,3 +79,33 @@ Read in sequence, the ten modules trace a developmental arc:
 These analyses read the dreams *theologically* — that is, they ask what the dreams reveal about God, the cosmos, and the human condition, using the categories and vocabulary of the Christian theological tradition as the primary interpretive lens. This is not the only way to read these dreams; the archetypes analyses (in the `/archetypes` folder) read them psychologically, and the alchemy analyses (in the `/alchemy` folder) read them through the alchemical tradition. All three lenses are legitimate; none is complete alone.
 
 The theological reading does not claim that every dream is a divine revelation, or that the dreamer's theological positions are infallible. It claims only that these dreams contain genuine theological *content* — worked-out positions, developed insights, honest questions — that repays careful attention on its own terms.
+
+---
+
+## The Poems as Theological Corpus: A Third Witness
+
+The poems in this corpus function as a *third voice* — distinct from the involuntary imagery of the dreams and the retrospective analysis of the commentary, but shaped by both. Where the dreams speak in symbol and myth, the poems speak in concentrated theological statement; where the commentary reads the symbols analytically, the poems *perform* what the dreams only enact. Together the three form a complete hermeneutical circle: dream → poem → theology.
+
+Each of the ten theological loci finds a poetic counterpart:
+
+**Christology**: *Since the Beginning* — *"I am Alpha and Omega, beginning and end"* — gives Christ's self-identification as the cosmic Logos in lyric form. *All of My Creatures* distils the atonement to a single couplet: *"All of my creatures have my breath, / for my children I conquered death."* This is not the language of academic Christology but of *Christ speaking from within his own accomplished victory*.
+
+**Trinity**: *Sweet Sophia, Holy Hokhmah* names the Sophia dimension of the Logos with theological exactness — *"Womb of all creation, Source of all being, / Sustainer of all life"* — and unites the feminine divine wisdom with the crucified redeemer: *"Arms outstretched on a cross, in my place."* *My Peace I Give to You* enacts the economic Trinity as speech act: the Son opens the Father's presence (*"Come to My Father boldly"*), the Spirit is the Shalom beyond earthly knowing.
+
+**Angelology and Demonology**: *Radiant Knight* is the poem of spiritual warfare, deploying the full Pauline armour — *"Ready to humbly serve, your radiant knight"* — against the forces the dreams confront in more turbulent form. *Pour Out My Soul* continues: *"By holy Word I fight / so more may be reborn"* — the dreamer-as-knight wielding not steel but proclaimed truth.
+
+**Eschatology**: *Since the Beginning* supplies the eschaton in its fullness: *"Join my dance, the song of the harvest, / And New Eden will throng with thanksgiving."* *For Love, In Love, He Made You* adds the universalism of the final gathering: *"a garden of flowers of every hue, / people of all kinds, from every nation."* *Imago Dei* grounds eschatology in the body: *"By grace, our new bodies too will go where the Son went."*
+
+**Soteriology**: *Communion* tells the entire soteriological narrative in miniature — exile, golden thread, return, resurrection: *"An exile no more, communion / calls me home, by a golden thread. / Here you raise me from the dead."* *The Exile* is the full soteriology narrated from within: the self-made prison, the darkness tilled into earth, the lovingly-nudged return to the heart-home.
+
+**Ecclesiology**: *Sweet Sophia, Holy Hokhmah* maps the Church's structural theology — *"Seven pillars, facets of the Spirit seven / And seven churches, Your body, Your leaven."* *All of My Creatures* sees the Church from God's perspective: *"Add your petals to my garden... Join the heavenly family."*
+
+**Purgatory and the Afterlife**: *Communion*'s resurrection — *"Here you raise me from the dead"* — and *The Exile*'s homecoming — *"Home, at last, an exile no more"* — together supply the affective template for what the purgatory and afterlife dreams encounter in their more doctrinal register.
+
+**Theodicy**: *The Exile* is the poem of suffering-as-formation: *"I tilled the darkness into rich earth / watered by my soul-stricken tears."* *Even Ground* is the poem of equanimity in the wake of suffering: *"the place where I thrive is even ground."* *Imago Dei* holds both the damage and the destiny: *"Our bodies remained good but broken... For glory our bodies are destined."*
+
+**Prophecy and Vocation**: *A Name Untold* traces the prophetic journey to the received name — *"I am given my name: The Oaken Pilgrim."* *Radiant Knight* announces the vocational disposition: *"Lord of Light, lead me to the weak."* *Pour Out My Soul* is the prophetic act itself: *"I am a child of light / who sings now of the dawn."*
+
+**Mystical Theology**: *The Rose Bower* is the corpus's most distilled contemplative poem — direct encounter with the divine in a sacred interior space, intimacy without drama, laughter as soft as snow. *Communion* supplies aquatic mysticism: *"Deep calls unto deep, / in waters of life."* *Even Ground* names the contemplative state: *"the place where I thrive is even ground."*
+
+The poems do not merely illustrate the theology of the dreams; they *sharpen* it, giving it the compression and lyric precision that the dream's mythological imagery cannot always achieve. Together, dreams and poems form a single theological corpus — the one speaking in night, the other in waking song, both attending to the same source.

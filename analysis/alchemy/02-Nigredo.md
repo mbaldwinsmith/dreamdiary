@@ -103,3 +103,15 @@ The nigredo in this corpus consistently involves:
 The nigredo is not overcome by willpower or cleverness. It is completed by *recognition*, *presence*, and *persistence on the path*.
 
 The blackening, in these dreams, is always already the beginning of the whitening.
+
+---
+
+## The Nigredo in the Poems
+
+*The Exile* is the richest nigredo poem in the collection — the only poem that gives extended lyric voice to the blackening from within it. Its second stanza names the nigredo's characteristic phenomenology with precision: "The soul-deep opened, devouring me whole, / and I was lost in a cave of twisting shadows, / a self-made prison for my self-made self. / I craved reunion but, heart-sealed, / I fell, again and again, into soul-bleak depths." The recursive falling — "again and again" — mirrors *Cycles of Dream Prisons*' repeated descent into stupor. The "heart-sealed" condition is the nigredo's *vas hermeticum* inverted: not the alchemist sealing the vessel to perform the Work, but the ego sealing itself against the Work, preventing transformation while imprisonment continues.
+
+The poem's treatment of the nigredo does not rush past it. It stays: "I tilled the darkness into rich earth / watered by my soul-stricken tears. / A one-flower garden, treasured above all else." This is the nigredo's hidden gift — the alchemical insight that the blackened, putrefied matter is the most fertile ground. The tears that water it are the *aqua nigra*, the dark water of the nigredo, which the albedo will later purify into living water. The lotus found in darkness is not the rubedo's gold — it is the first sign of life within the blackening, the promise that the putrefaction is generative rather than merely destructive.
+
+*Pour Out My Soul* engages the nigredo from the side of the declared will rather than retrospective account: "Take my sin and clear it, / freeing me by your might" is the *mortificatio* as prayer — the ego asking for the burning it cannot perform on itself. "I won't succumb to dark" — the declaration made from within the nigredo's pull, not from outside it. This is the alchemical discipline of refusing to flee the Work while also refusing to surrender to the dark absolutely: pressing through it on the straight path.
+
+*A Name Untold*'s brief descent — "I've rested in the depths, where light stops" — is the nigredo in a single line, held lightly, as a station already passed. The poem's speaker has been through the blackening and emerged; the nigredo is acknowledged rather than dramatised.

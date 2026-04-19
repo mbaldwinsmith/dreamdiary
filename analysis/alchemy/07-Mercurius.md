@@ -122,3 +122,15 @@ The alignment of genes through singing is a perfect Mercurian image: transformat
 Mercurius is the spirit of the Work itself — the intelligence that animates the process, that knows what the dreamer does not yet know, that tricks and teaches and mediates and transforms. He cannot be grasped, only recognised. He cannot be controlled, only collaborated with.
 
 The dreamer who has learned to recognise Mercurius in his many forms has learned the most valuable skill available to an alchemist: the ability to read the Work as it is actually happening, rather than as one imagines it should happen.
+
+---
+
+## Mercurius in the Poems
+
+Several poems engage the Mercurian principle directly — sometimes as the voice speaking through the poem, sometimes as the quality of movement the poem embodies.
+
+*Since the Beginning* gives Mercurius his most theologically elevated form: "I hide in plain sight behind every door. / Knock for Me and I shall always answer." The divine speaker who hides in plain sight, who is simultaneously everywhere and nowhere, who laughs in streams and sings in grass and whispers in wind — this is the *spiritus mundi*, the World Soul in its Mercurian aspect: present in all things, fixed in none, instantly recognisable once the eye has learned to see and immediately elusive again. "I am Alpha and Omega, beginning and end. / Morning Star and the dark shade of evening" — the *duplex Mercurius*, holding both poles, both the light and its absence. The divine Mercurius is not split but whole: the one who is both dawn and dusk, both the treasure found and the door through which the treasure is sought.
+
+*A Name Untold* traces the Mercurian trajectory of the seeking soul. The wandering through many guises ("an exile, a knight radiant, a keeper of hearths, / a tender of gardens, a pilgrim of many paths") is itself a Mercurian movement: the self that refuses to fix itself in any single form until the received name arrives. This is the *spiritus mercurialis* operating in the soul's development — the trickster-transformer who prevents premature coagulation, keeping the matter fluid until the right moment. The golden thread of *The Exile* that leads the wanderer home is the Mercurian psychopomp in one of its most benign aspects: the guide who does not appear as a figure but as a thread, as a nudge, as a direction sensed rather than seen.
+
+*My Peace I Give to You* presents Christ as Mercurius in his role as divine mediator: "Follow Me, become fishers of another kind, / you will have treasure in heaven: now, follow Me." The call to follow is Mercurian — it does not explain where it leads, it simply moves and invites movement. "One family, under My Father eternal, be My bride" — Mercurius as the mediator who brings the isolated individual into the community through relationship, dissolving the boundaries between the seeker and the sought. The torn curtain — "the curtain is torn" — is the Mercurian act par excellence: the threshold dissolved, the sealed boundary opened, the hermetic vessel cracked from within to allow the volatile substance to escape into the world.

@@ -100,3 +100,17 @@ The citrinitas in this corpus consistently involves:
 6. **Embodied delight**: once the purification is sufficiently advanced, the senses themselves become instruments of wonder
 
 The citrinitas is the stage of *becoming what you were always meant to be* — not yet fully arrived, but finally moving in the right direction with eyes open. It is the stage of *calling*, of *vocation*, of *prophetic service to the emerging gold*.
+
+---
+
+## The Citrinitas in the Poems
+
+The poems are saturated with citrinitas energy — more so than any other stage. This is consistent with the dreamer's conscious life: the vocation-consciousness that characterises the citrinitas has been deliberately articulated and explored in waking composition.
+
+*Radiant Knight* is the citrinitas vocation poem par excellence. Every element is correct for the dawning stage: the knight serves the light he has not yet fully become ("you illuminate my eyes with love"), carries the tools of the task not yet completed (the sword, the shield, the breastplate of righteousness), and is sent toward the weak and the battlefield — the herald's work, not the king's. The poem's explicit acknowledgment of vulnerability — "When under the shadow of death, / I search the darkness for Your light" — is the citrinitas's characteristic cold: it is not yet the full warmth of the rubedo, and the herald knows it. The appeal — "I long for the healing kiss of Your breath, / that renews my heart by Your might" — is the citrinitas asking for what only the rubedo can provide, while faithfully serving in the meantime.
+
+*Pour Out My Soul*'s central declaration is the citrinitas in its most compressed form: "By holy Word I fight / so more may be reborn / I am a child of light / who sings now of the dawn." The *child of light* is not yet the *king of light* — but the dawn is real and the singing has begun. The gold bowls filling with incense at the poem's close (echoing Revelation 5:8) are the citrinitas as priestly service: the herald preparing the way through prayer, making ready the vessels for the rubedo's completion.
+
+*Since the Beginning* presents the citrinitas from the divine side — the God who calls the soul to its vocation: "You were made with a song to sing to me. / Every one of my beloved prophets spoke / So that you would open your eyes to me / And lift up your voice in my chorus." This is the citrinitas's founding moment: the recognition that the calling is not invented by the soul but received from a source that has been preparing for this moment since before creation. "Join my dance, the song of the harvest, / And New Eden will throng with thanksgiving" — the citrinitas herald is invited to participate in the approaching rubedo, not to wait for it passively but to join its advance.
+
+*A Name Untold*'s concluding gift — "I am given my name, the Oaken Pilgrim" — is the citrinitas's characteristic resolution: the prophetic identity clarified from outside the ego, received rather than achieved. The Oaken Pilgrim is not yet the gold of the rubedo's completion, but it is the clear sense of vocation that makes the herald's service possible. The name arrives as the culmination of the albedo's purification — the pilgrim who has been washed enough to receive the name.

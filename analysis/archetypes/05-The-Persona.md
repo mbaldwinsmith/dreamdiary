@@ -83,3 +83,15 @@ The Persona in this diary:
 - Must sometimes be strategically adopted to protect authentic identity from conscription (*Trumpety Trump*)
 
 What emerges is not a rejection of the Persona but a *calibrated* relationship with it: honest enough for genuine encounter, modest enough to avoid inflation, flexible enough to camouflage when the social field demands a figurehead. *Child Shadow Integration* adds a further dimension: the Persona can be destroyed not by the ego's own failing but by forces operating in its blind spot (the Jester's rumours) or by the projection of those who refuse to see it clearly (the Father who calls the comb a knife). The Persona is not only an interior construct — it depends on the social field's willingness to recognise it, and that recognition can be revoked.
+
+---
+
+## The Persona in the Poems
+
+*A Name Untold* is the most sustained poetic engagement with the Persona in the collection. The entire first movement of the poem is a catalogue of Persona-roles worn and found insufficient: "an exile, a knight radiant, a keeper of hearths, / a tender of gardens, a pilgrim of many paths." Each is a genuine costume, not a false identity — but none is the name being sought. "Wearing many guises, no fixed costume" is the Persona's honest description of itself in a psyche doing genuine individuation work: the mask is acknowledged as mask, not claimed as face.
+
+The poem's resolution — receiving the name "the Oaken Pilgrim" — represents not the end of the Persona but the arrival at an authentic one. The oak is a Persona (a public, recognisable identity) but it is also rooted in something deeper than performance: "chthonic depths and airy heights" are both present in the oak, which does not have to choose between them for the sake of the social image. This is the differentiated Persona: one that corresponds to the actual self rather than representing the self the social field demands.
+
+*Radiant Knight* inhabits the Knight Persona consciously — with full knowledge that it is a calling rather than an identity. The knight is defined entirely by reference to something beyond himself: "ready to humbly serve, your radiant knight." The Persona here is not a shield against vulnerability but a form of service, a face put on not for self-protection but for the sake of those to whom service is owed. The contrast with the dream-corpus's knight-as-failed-defender (*Author, Knight, Elder*: the castle is lost) is precise: the poem's knight does not hold a castle at all — he is sent out, not entrenched.
+
+*Even Ground* engages the Persona from the angle of mood rather than role. The poem describes the arrival at "euthymia" — psychological stability — after a period of extreme swings: "an age ago, I never knew the peace I've found." The Persona problem is often a mood problem: the grandiose Persona requires inflation; the deflated Persona requires performance of smallness. The "even ground" the poem describes is a Persona calibrated to actual inner temperature rather than to the demands of the social field.

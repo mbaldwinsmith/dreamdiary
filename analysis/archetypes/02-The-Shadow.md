@@ -79,3 +79,17 @@ The Shadow in this corpus moves through three clear stages:
 3. **Integrated** — absorbed through stillness, acknowledged through song, dispersed by direct gaze; and in its fullest form, dissolved through loving presence with the wound beneath
 
 The arc suggests a psyche that has done substantial Shadow work. Two integration paradigm cases emerge. *Evil Twin Integrated* names the mechanism: combat only reinforces the Shadow's oppositional existence; integration requires the ego to stop fighting. *Child Shadow Integration* deepens this further: the Shadow's core is not a power to be neutralised but a *wound to be loved*. The dragon had nowhere to roost; the twisting shadow wept that nobody liked it. Both images name the same truth — the Shadow is the self that was left behind, and it is waiting not to be defeated but to be claimed.
+
+---
+
+## The Shadow in the Poems
+
+Two poems engage the Shadow with particular directness, giving the waking-life voice to material that in the dreams erupts involuntarily.
+
+*The Exile* is the Shadow's own autobiography, told in retrospect from the vantage of someone who has passed through it: "a self-made prison for my self-made self" names the Shadow's characteristic structure — the imprisonment built not by external forces but by the ego's own contractions. "I craved reunion but, heart-sealed, / I fell, again and again, into soul-bleak depths" — this is the compulsive return to darkness that the dream-corpus traces through *Cycles Of Dream Prisons* and the persistent demonic encounters. The poem does not pathologise this period but honours it: "I tilled the darkness into rich earth / watered by my soul-stricken tears." The Shadow's territory becomes fertile. This is the post-integration voice — not the ego at war with the Shadow, but the voice of someone who has passed through it and found the lotus in the dark.
+
+The poem's lotus image is particularly resonant alongside the dream-corpus. The white lotus blooms in dark water; the Shadow's void, rightly inhabited rather than fled, becomes the generative ground of the soul's most beautiful expression. "A one-flower garden, treasured above all else" — the Shadow's most difficult gift.
+
+*Pour Out My Soul* engages the Shadow from the opposite direction: not the retrospective account of one who has been through the dark, but the ongoing declaration of spiritual combat. "Take my sin and clear it, / freeing me by your might... I won't succumb to dark, / In me, Your light will shine." This is the ego maintaining its orientation, refusing the Shadow's pull, but doing so through surrender to a higher power rather than through self-assertion. The prayer-structure — "pour out my soul to you, Lord" — is itself an anti-Shadow gesture: the ego that pours itself out is the ego that cannot be filled by the Shadow's dark content.
+
+*A Name Untold*'s central question — "what word could compass both light and dark, / earth and sky, and marry contrasts stark?" — is the Shadow-integration question in poetic form. The name sought is one that can hold the Shadow without denying it: "the Oaken Pilgrim" is not a being of pure light but a "righteous oak, humbled might," rooted in the chthonic depths where shadow-material lives.
