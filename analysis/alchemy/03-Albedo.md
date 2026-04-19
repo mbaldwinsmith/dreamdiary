@@ -102,3 +102,19 @@ The albedo in this corpus consistently involves:
 The albedo is the stage of *being purified* rather than *achieving purification*. The dreamer does not perform the whitening — he receives it, usually through water and light and gentle encounter.
 
 The albedo is the promise of the rubedo. It is not the gold, but it is the light by which the gold becomes visible.
+
+---
+
+## The Albedo in the Poems
+
+Several poems give the albedo its fullest waking-voice expression, supplying the affective and spiritual texture that the dreams stage as image.
+
+*Communion* is the albedo's defining poem in the collection. "Pouring out living water afresh" — the *aqua permanens*, the purifying rather than dissolving water — is the albedo solutio in its most beneficent form. "Deep calls unto deep, You to me, / as Your Spirit fills my being" echoes *Heavenly Ascension*'s underwater prayer: the ego submerged in the purifying element, sustained by the divine rather than by its own capacity. The poem's climax names the albedo precisely: "An exile no more, communion / calls me home, by a golden thread" — the washing and the homecoming are simultaneous, as they always are in the albedo. The soul is not transported to another location; it is *purified into its proper home*.
+
+*My Peace I Give to You* captures the albedo's characteristic phenomenology — the cool, spacious Shalom that follows the nigredo's heat: "Deepest Shalom, beyond earthly knowing." This is the albedo peace: not the gold of the rubedo, not the silver of moonlight only, but the stillness of a psyche that has been washed and rests in the washing. "Knock and I shall answer, seek and find! / Keep My commandments, abide and simply be" — the albedo is the stage of *abiding*, of allowing, of receiving. The ego at the albedo stage does not heroically achieve — it practices the discipline of remaining present to what is being given.
+
+*Even Ground* is the albedo as psychological temperament — the *euthymia* that the Stoics prized and that the alchemists would recognise as the silver mood of the purified soul: "a stabler mood, / In a peaceful present moment I brood." Not the ecstasy of the rubedo's gold, not the despair of the nigredo's black — but the clean, level ground that neither soars nor crashes. "Like a skylark I am carried on winds of the heart / over a meandering landscape, peace to impart" — the albedo soul is carried, not driving; moved, not moving itself. This is the *solutio*'s gift: the dissolved ego, light enough now to be borne.
+
+*The Rose Bower* gives the albedo in its most intimate form: the cool, fragrant, reflective encounter in the bower, where "the silence of friends between us, / or a gentle whisper under birdsong" constitutes the totality of the meeting. No drama, no fire, no confrontation — only the luminous, gentle presence of the purified relationship. This is the albedo's quality of *reflective consciousness*: the moon-stage, cool, receiving, spacious.
+
+*The Exile*'s turn toward the light — "Sweet, healing breath restored me, / whispered from beyond. / Eyes restored, I cried, 'I see you!'" — is the albedo's characteristic moment: the eyes that were blind in the nigredo's dark cave are restored, not to full solar vision but to the capacity to *see* at all. The white lotus blooming in dark water is the albedo's own flower: not golden but white, not blazing but radiant, rooted in the dark water that purified it.

@@ -83,3 +83,19 @@ The documents are:
 8. [The Vessel](08-The-Vessel.md) — The hermetic container: dreaming as the alchemical vas
 9. [The Philosopher's Stone](09-Lapis-Philosophorum.md) — The Lapis: Christ, Self, and the incorruptible
 10. [Sophia and the Anima Mundi](10-Sophia-and-the-Anima-Mundi.md) — The hidden feminine: why Sophia pervades rather than appears
+
+---
+
+## The Poems as Alchemical Corpus
+
+The thirteen poems composed alongside this dream diary constitute a conscious, waking-life parallel to the involuntary alchemical work of the dreams. Where the dreams perform the *opus* through the dreamer — the prima materia dissolving without his permission, the nigredo arriving in its own time — the poems are the alchemist's reflective voice, deliberately working the same material in a different register. Together, they map across the full alchemical arc:
+
+| Alchemical Stage | Primary Poems | Quality |
+|---|---|---|
+| **Prima Materia** | *The Exile* ("a self-made prison for my self-made self"), *Imago Dei* (the fallen condition) | The raw, locked, unrefined starting state |
+| **Nigredo** | *The Exile* ("cave of twisting shadows"), *Pour Out My Soul* ("Take my sin and clear it") | The descent, the dissolution, the blackening |
+| **Albedo** | *Communion* ("living water"), *Even Ground* (euthymia), *My Peace I Give to You* (Shalom), *The Rose Bower* | Purification, cool silver light, the aqua permanens |
+| **Citrinitas** | *Radiant Knight*, *Pour Out My Soul* ("child of light who sings now of the dawn"), *Since the Beginning* ("song to sing to me"), *A Name Untold* (vocation received) | Herald-consciousness, the dawning call |
+| **Rubedo** | *All of My Creatures*, *For Love, In Love*, *Imago Dei* ("For glory our bodies are destined"), *The Exile* (final homecoming), *Communion* ("raise me from the dead") | Resurrection, the garden of flowers, corpus glorificationis |
+
+Several poems function across multiple stages simultaneously — as the alchemists knew, the Work is not sequential but spiralling. *The Exile* alone traces the complete arc from prima materia through nigredo to rubedo in the space of seven stanzas: the self-made prison, the cave of shadows, the lotus found in darkness, the golden thread, the homecoming, the soul dyed in every hue. It is a compressed *Opus Magnum* in verse.

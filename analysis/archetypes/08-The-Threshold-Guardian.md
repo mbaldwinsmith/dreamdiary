@@ -73,3 +73,17 @@ The Threshold Guardian in this corpus:
 | The cobra | Serpent vault-guardian | *Museum* | Calm acknowledgment; recognition may be mutual |
 
 What unites these encounters is the developing quality of the dreamer's engagement: from combat-readiness and resentment, through prayer and patience, to calm recognition and eventual role-reversal. The threshold, rightly met, does not merely grant passage — it transforms the one who stands before it.
+
+---
+
+## The Threshold in the Poems
+
+The poems give lyric form to several of the corpus's most significant threshold-crossings, providing the affective and spiritual content that the dreams stage as image.
+
+*The Exile* is the fullest poetic account of a threshold successfully crossed. The poem traces the journey from locked exile ("Pride-stricken, heart-locked, I stood alone") through dark descent and the discovery of the lotus bud, to the moment of crossing: "Lovingly nudged, I followed the golden thread, / to my heart-home at the water's mouth. / There, washed in the sacred waters, / the light of the world dyed my soul in every hue. / Home, at last, an exile no more." The washed threshold is the inverse of *Renewal Dream*'s failed swimming-pool crossing — but here the ritual cleansing happens and the homecoming is genuine. The Threshold Guardian's demand (cleansing, preparation, the giving up of the self-made self) has been met.
+
+*Communion* names the threshold-moment explicitly as homecoming: "An exile no more, communion / calls me home, by a golden thread." The Eucharistic table as threshold is theologically precise: the Mass is itself a liminal rite, a crossing from the ordinary world into the presence of the sacred and back again. "My weary soul craved reunion, / and here You raise me from the dead" — the threshold crossed is the boundary between death and life, exactly the threshold that *River Of Grief* navigates from the other direction.
+
+*My Peace I Give to You* delivers the single most decisive threshold-dissolution in the collection: "Come to My Father boldly, the curtain is torn." The Temple curtain — the boundary between the holy and the most holy — has been permanently removed. This is the Threshold Guardian overcome not by the dreamer's preparation or persistence but by the act of the divine: the threshold that the armoured figures of *Heavenly Ascension* represent — the standard the ego cannot meet alone — is dismantled from the inside. Grace, in this framework, is the ultimate Threshold Guardian: not an obstacle to be overcome but the force that removes the obstacle on behalf of the unworthy ego.
+
+*A Name Untold* traces the threshold as the moment of naming. The pilgrim has crossed many thresholds (mountain tops, depths, soul's castle) without finding the identity being sought. The threshold into the received name — "I am given my name, the Oaken Pilgrim" — is the final crossing, and it is accomplished not through heroic effort but through receptive presence: the name arrives.

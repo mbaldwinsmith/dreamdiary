@@ -74,3 +74,17 @@ The Wise Old Man in this diary:
 | Father / Janus | Threshold-holder | *Confession Of Calling To Dad* | Ambivalent Senex (liminal) |
 
 The dreamer's relationship with the Wise Old Man is one of his most developed: he can clearly distinguish the life-giving Senex from its corrupted form, which is itself a mark of individuation — the ability to honour authority without submitting to all who claim it.
+
+---
+
+## The Wise Old Man in the Poems
+
+Several poems give voice to the Wise Old Man archetype directly — most remarkably, from the inside: the divine Senex himself speaks.
+
+*All of My Creatures* and *Since the Beginning* are both first-person divine addresses — the Wise Old Man's own voice, offering what the Senex offers: orientation, perspective, the long view. "I waited since the beginning for you, / From speaking light into being, / I counted down every second until / I could tell you how loved you are!" (*Since the Beginning*) — this is the Senex at his most purely positive: not demanding submission but offering intimacy. "I am Alpha and Omega, beginning and end. / Morning Star and the dark shade of evening / My being is the being in all things" — the Senex as cosmic ground, the ordering principle that encompasses rather than excludes.
+
+*All of My Creatures* extends this into invitation: "Join the heavenly family, / love forever, undyingly." The divine Senex here does not rule from a distance but gathers — the Founder of *Supermarket of Sin* is not remote but intimately known in every creature, every moment. "I created the stars and the Sun, / so you'd find me in every one" echoes the *Future Bugs* dream's "God of the Four Skies" — a Senex whose sovereignty extends across multiple registers of reality.
+
+*For Love, In Love, He Made You* presents the Senex as the origin of the dreamer's particular soul: "Since before the beginning of time, / He's had you in His holy mind. / The Word plotted out your soul's climb, / from beginning to end, Him to find." This is the Senex as the architect of personal destiny — not merely cosmic order but intimate foreknowledge. "The Word plotted out your soul's climb" places the Senex in exact alignment with *Divine Plans*' senior angels showing the dreamer how spoken prompts reshape creation: in both cases, the Logos is the operative principle.
+
+*My Peace I Give to You* gives the Senex-Christ in his most accessible register: "My peace I give to you, peace be with you! / Deepest Shalom, beyond earthly knowing." The Shalom offered is not merely comfort but ontological reorientation — the peace that "passes understanding" is the Senex's gift of a perspective the ego cannot generate from its own resources. "Come to My Father boldly, the curtain is torn" — the Senex's ultimate threshold-dissolution, the boundary between human and divine permanently opened by an act the ego did not and could not perform.

@@ -142,3 +142,21 @@ The Bible scholar on the woodland path (*Driving Away Demons*) — drawing on ap
 ## Summary
 
 These dreams constitute an extended inner narrative of a person in serious spiritual formation — wrestling simultaneously with faith declaration, Shadow integration, Anima encounter, prophetic calling, and the boundary between reality and illusion. The central tension is between the grandeur of the vocation glimpsed (herald, lord protector, rewriter of scripture, type of Christ) and the persistent awareness that such grandiosity must be held lightly, distributed among many, and always referred back to the one true source. The dreamer's own corrections — insisting on many Chosen Ones rather than one, governing as a Viceroy rather than a king, absorbing the Shadow rather than destroying it — suggest a self-critical spiritual intelligence at work beneath the visionary surface.
+
+---
+
+## The Poems as Parallel Corpus
+
+The thirteen poems composed alongside this dream diary constitute a second, waking-life register of the same psychic material. Where the dreams are involuntary, urgent, and often alarming, the poems are reflective, crafted, and liturgically grounded — yet they navigate the same symbolic landscape: exile and homecoming, spiritual warfare, the Self's call from beyond the ego, the garden as eschatological gathering-place. Read together, the poems and the dreams illuminate each other as two faces of a single process.
+
+Several convergences are particularly striking:
+
+**Exile and the Golden Thread.** Both *The Exile* poem and the dream *Dream Prison* use the image of a golden thread leading the wanderer home. The poem gives the waking version: "lovingly nudged, I followed the golden thread / to my heart-home at the water's mouth." The dream gives the unconscious version: escape from corporate captivity through alignment to Christ's fractal image. The two images are structurally identical — a thread drawing the self through an alienating medium toward reunion.
+
+**The Oaken Pilgrim and the Prophetic Vocation.** *A Name Untold* traces the same vocation-wrestling that animates *Chosen Ones with the Mark* and *Herald of the King*. "Long I've wandered, seeking a name unknown" is the waking-voice equivalent of the dreamer's suppressed protest about the singular Messiah. Both arrive at the same corrective: the name received is not a title of singular greatness but of rooted, distributed presence — "the Oaken Pilgrim," not the One.
+
+**Spiritual Warfare and the Word.** *Pour Out My Soul* declares "By holy Word I fight / so more may be reborn / I am a child of light" — the waking poem's equivalent of the dreamer calling on Jesus to fling back the hulking figure. *Radiant Knight* deploys the full Pauline armour (Ephesians 6) not as heroic self-assertion but as receptive service: "Praise be to you, Eternal Light... ready to humbly serve, your radiant knight."
+
+**The Garden of Many Flowers.** The image of the heavenly garden populated by souls of every kind appears across both corpora. In *Since the Beginning*: "every soul a flower all adding sweet scent." In *For Love, In Love, He Made You*: "a garden of flowers of every hue, people of all kinds, from every nation." In *All of My Creatures*: "add your petals to my garden." The same image recurs in the dreams — the white lotus among many flowers in *The Exile* poem, the assembled community in *Herald of the King*. This is the corpus's central eschatological vision, sustained across every mode of expression.
+
+**Sophia and the Feminine.** *Sweet Sophia, Holy Hokhmah* gives explicit waking-voice form to the Sophia-level Anima that appears in the dreams only in *Phoenix Reborn*'s brief but extraordinary moment. The poem's address — "Womb of all creation, Source of all being, Lover of my soul" — provides the theological elaboration that the dream could only gesture at through the image of the dreamer-as-beautiful-woman singing life back into being.
